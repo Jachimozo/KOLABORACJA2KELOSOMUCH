@@ -1,2 +1,1 @@
-KOLABORACJA2KELOSOMUCH
-======================
+Jachimozo jest suaby
